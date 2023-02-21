@@ -17,3 +17,6 @@ Entièrement configurable
 La ressource est sous les librairies RageUI V2.
 Cette ressource a été entièrement créée par Baiiki.#5575
 ******** REJOIGNEZ LE DISCORD POUR AVOIR LA CLÉ WINRAR ********
+
+
+DISCORD: https://discord.gg/kh2g9BGtkT/
